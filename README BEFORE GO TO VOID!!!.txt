@@ -1,0 +1,1 @@
+i didn't sure this virus corrupt the mbr but dont try it
